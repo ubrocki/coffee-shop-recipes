@@ -14,7 +14,7 @@
 
 ### Step 1
 
-- Brew Breakfast Blend at double strength and pour over ice.
+- Brew Breakfast Blend at double strength and pour slowly over ice.
 
 ### Step 2
 
