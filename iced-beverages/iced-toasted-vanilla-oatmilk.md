@@ -13,7 +13,7 @@
 - 6 oz Vanilla Flavored Coffee
 - 2 oz Toasted Vanilla Syrup (recipe below)
 - 1 1/2 cup ice
-- 1/2 cup unsweetened oatmilk
+- 1/2 cup unsweetened or lightly sweeted oatmilk
 
 ## How to Make Toasted Vanilla Syrup
 
